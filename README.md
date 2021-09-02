@@ -11,3 +11,8 @@ My favorite things:
 - matching
 - Mod 1 students
 - cookies
+
+Things that are meh:
+ - cheddar cheese
+ - mtv in 2021
+ - mumble rap
