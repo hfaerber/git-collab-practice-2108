@@ -21,3 +21,8 @@ A better list of things I don't like:
 - steak
 - Radiohead
 
+Things that are unappreciated by adults:
+- hide-n-seek
+- parades
+- novelty ice cream treats
+- bubbles
